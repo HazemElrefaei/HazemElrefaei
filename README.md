@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @HazemElrefaei
+- 👀 I've BSc in Aerospace Engineering - Zewail City for Science and Technology, Egypt.
+- 🌱 I’m currently pursuing MSc degree in Mechanical Engineering - Spacecarft Systems Design Concentration from Khalifa University, UAE.
+- 📫 Email: 100058290@ku.ac.ae
+- 📫 Email: s-hazemelrifaei@zewailcity.edu.eg
+- 📫 Tel: +971 56 675 5370
